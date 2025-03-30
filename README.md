@@ -5,7 +5,7 @@
 
 
 
-Team members 
+# Team members 
 
 
 
@@ -35,11 +35,19 @@ Team members
 
 
 
-ТЗ
+# ТЗ
 
 
 
-Diagrams
+# Diagrams
 [диаграмы.docx](https://github.com/user-attachments/files/19524968/default.docx)
 
+
+
+
+
+
+
+
+# Presentation 
 
