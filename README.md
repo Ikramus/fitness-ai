@@ -50,7 +50,8 @@
 
 # ТЗ
 
-[TZ.docx](https://github.com/user-attachments/files/19525062/TZ.docx)
+[TZ.docx](https://github.com/user-attachments/files/19525617/TZ.docx)
+
 
 
 
@@ -68,6 +69,7 @@
 
 # Presentation 
 [Presentation.pptx](https://github.com/user-attachments/files/19525138/Presentation.pptx)
+https://drive.google.com/file/d/1WDWzZ3kTcrEBdsD6HWSa_GuiCzT_wzDm/view?usp=sharing
 
 
 
