@@ -91,3 +91,36 @@ https://drive.google.com/file/d/1WDWzZ3kTcrEBdsD6HWSa_GuiCzT_wzDm/view?usp=shari
 
 
 
+Наш https://docs.google.com/spreadsheets/d/1LtXZlFm_UbMDezV3RIYXoj2cIRNN2LuDyQXwmJ8V7M8/edit?gid=116236438#gid=116236438
+
+
+
+
+
+
+
+
+Наша работа была проверана этими группами:
+
+
+
+
+8.4   https://docs.google.com/spreadsheets/d/1RBFOzJJuNtDxEPsZU5zfo1aEpX8Dm4XqD-oHU9pJVSI/edit?gid=0#gid=0
+
+
+
+
+4.1 ск  https://docs.google.com/spreadsheets/d/13YKOvzV7jyS1OseR_betV5oW4j_kMyNTD6rEV9CL7d4/edit?usp=sharing
+
+
+
+
+10.5        
+
+
+
+
+
+8.3 
+
+
