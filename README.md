@@ -26,7 +26,7 @@
 
 
 
-Бассет Ричи - Data bases ebgineer 
+Бассет Ричи - Data bases engineer 
 
 
 
@@ -115,7 +115,7 @@ https://drive.google.com/file/d/1WDWzZ3kTcrEBdsD6HWSa_GuiCzT_wzDm/view?usp=shari
 
 
 
-10.5        
+10.5    https://docs.google.com/spreadsheets/d/1cfGVbr18j8LwufJ-sXo4wqPIhHYh7-kiY-nGHST9bUM/edit?usp=sharing
 
 
 
