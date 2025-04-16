@@ -62,6 +62,12 @@
 
 
 
+# Figma 
+https://www.figma.com/design/IgiD9wSyiDVFO7suvNzgyb/FitAI?node-id=1-2165&t=We1koURHTDxUF4zA-0
+
+
+
+
 
 
 
